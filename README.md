@@ -1,4 +1,5 @@
 # 1234
 1234
-Likes Salmon
-Loves icecream for breakfast 
+[Likes Salmon, bc she made in school and guesed weight perfect]
+[Loves icecream for breakfast]
+[played piano when younger]
